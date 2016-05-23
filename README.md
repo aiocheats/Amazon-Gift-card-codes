@@ -1,0 +1,2 @@
+# Amazon-Gift-card-codes
+Amazon  always has been the great retailer in the online Market Place . Amazon has its store in almost all country .Amazon gift card is the virtual currency used to purchase from amazon.com . With this Amazon card you can buy different items from amazon.com just using the gift card codes. We have launched the special program to check amazon code is either valid or invalid , The source link is here http://giftzone365.com/get-free-amazon-gift-card-codes/
